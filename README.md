@@ -1,4 +1,4 @@
-Jawaban No 1 dan 2: https://docs.google.com/document/d/11-wHuU75MHlJrjGRJxykru87er0VA5165d1hZBn0lXY/edit?usp=sharing
+Jawaban No 1, 2, dan 3: https://docs.google.com/document/d/11-wHuU75MHlJrjGRJxykru87er0VA5165d1hZBn0lXY/edit?usp=sharing
 
 
 # step_01
